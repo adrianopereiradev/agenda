@@ -1,3 +1,3 @@
 ### Agenda 2022
 
-Em breve novo projeto
+Em breve um novo projeto
